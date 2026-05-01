@@ -1,214 +1,214 @@
 ## S1S1S1
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|SIVR-484|[チントレ特化VR 早漏に悩むご主人様のために…亀頭パンパン寸止め焦らし甘サドメイド](https://www.avmoive.top/index.php/archives/63378/)|![image](https://cdn.up-timely.com/image/2/content/84374/yMYJjAAVP7CPln8sAGoOGXw5yM0tRNs1H6FpuG6s.jpg)|2026-03-30
-2|OFJE-619|[「おっぱいに溺れてみない？」レベチの柔巨乳美女のタプタプ乳房に顔面覆われながらチュパチュパチンチンシコシコされちゃうAV界最高峰の授乳手コキ天国ラッシュ60発230分](https://www.avmoive.top/index.php/archives/63284/)|![image](https://cdn.up-timely.com/image/2/content/84369/OUuNEHRdjzV4pQCKD0k1W4K4Z6cH7zEvTQ7QVQI8.jpg)|2026-03-24
-3|OFJE-617|[恥ずかしいのにイッちゃうぅ！！ こんな特級美女のクリ・小陰唇・膣内までもさ・ら・け・出・し！！マングバおっぴらき下品絶頂100](https://www.avmoive.top/index.php/archives/63283/)|![image](https://cdn.up-timely.com/image/2/content/84383/gaFNZAgkQxG678vT6LOGIngM2D2sapdn9pfJ1FXU.jpg)|2026-03-24
-4|OFJE-701|[現役最強AV女優の全てが詰まった S1コンプリート100SEX 12時間 デビュー作,FANZAランキングで1位を獲った作品、人気名作シリーズまで大ボリューム完全保存版](https://www.avmoive.top/index.php/archives/63282/)|![image](https://cdn.up-timely.com/image/2/content/84386/cUNRyW0Ds6actSou0wqmYMCKYBi54cG6D3FjwoNe.jpg)|2026-03-24
-5|SNOS-159|[人生…返してください…性接待、枕営業、ルッキズム文化…女子アナを襲った闇深い強要レ×プ証拠VTRをご覧ください。](https://www.avmoive.top/index.php/archives/63281/)|![image](https://cdn.up-timely.com/image/2/content/84364/Cku9VbwmOA196ZvSiADP6dx1SNre9bU7XITL9IjH.jpg)|2026-03-24
-6|SNOS-083|[【サークル飲み会の奇跡】 サバサバで性格合わない女友達が酔って無防備になって思わず手を出した僕！するとまさかの…チ○コマ○コは相性抜群！朝までぶっ通しの以心伝心セックス。](https://www.avmoive.top/index.php/archives/63280/)|![image](https://cdn.up-timely.com/image/2/content/84388/nQJm8jktDPGouHKEvhGXIN4Yvv0wokaKn8czgBy5.jpg)|2026-03-24
-7|SNOS-162|[地方の訪問介護先で思いやりナースとドクターが相部屋宿泊…医者の下心まで体で介助する朝まで絶倫ケア性交 現役看護師による 看護師NTRドラマ！](https://www.avmoive.top/index.php/archives/63279/)|![image](https://cdn.up-timely.com/image/2/content/84387/dTaF7xKE7Oa35evJrYyiOUKhl3bMpSynlnX8jbkF.jpg)|2026-03-24
-8|SNOS-140|[ボーイッシュで腹筋割れたアスリート体型女子のおま●こはさぞキッツキツなんだろう？ｗｗｗ 媚薬漬けダッチワイフにされたスプリンター女子大生](https://www.avmoive.top/index.php/archives/63278/)|![image](https://cdn.up-timely.com/image/2/content/84367/KzFsbc1tCb6zmltjBKiOCAczobbAzPJNNgSsoKEY.jpg)|2026-03-24
-9|SNOS-143|[【床屋バイト募集】 オジさん個人経営店に来たのは奇跡の美少女！可愛すぎてムラムラして仕事にならないから即効クビにしようとしたら…まさかの彼女もエッチ興味津々の中年好き！営業中、休憩中、非番の日、ハメ放題！いつでもセックスOKズボズボ雇用関係！](https://www.avmoive.top/index.php/archives/63277/)|![image](https://cdn.up-timely.com/image/2/content/84378/Xf4rJdAmVtudv1ng5kgOk4F0ed13BlvUWssnfYQp.jpg)|2026-03-24
-10|SNOS-161|[貧困問題に取り組むボランティア女子大生、支援先で性被害も体験しちゃう！](https://www.avmoive.top/index.php/archives/63276/)|![image](https://cdn.up-timely.com/image/2/content/84375/EAM9hbVdpur5Lky5Q9ZL29C0sXbGznKNkfa1vUt0.jpg)|2026-03-24
+1|OFJE-628|[マ●コチ●ポの抜き挿しズボズボ見せつける ガニ股おっぴろげ騎乗位特級美女の下品な領域展開97スペシャル](https://moive.pp.ua/index.php/archives/79544/)|![image](https://cdn.up-timely.com/image/2/content/84875/IjDkTVZ5cxS8fb6sIRCbFg8O2fAwdPKeGGCmJ4Dy.jpg)|2026-04-28
+2|OFJE-709|[最高美乳を持つ女優のベスポジ正面おっぱい！女体と対面アングルで爆乳前面ダイナミック超堪能！フロント乳揺れ激ピストンラッシュ100本番8時間](https://moive.pp.ua/index.php/archives/79543/)|![image](https://cdn.up-timely.com/image/2/content/84867/NFJkRI6UMJl88s99xkHwuJnzqoPviLLngtLEnJCb.jpg)|2026-04-28
+3|OFJE-626|[おとなしそうな巨乳少女は発情男に迫られ無理やりイ・カ・さ・れ・る！70本番8時間](https://moive.pp.ua/index.php/archives/79542/)|![image](https://cdn.up-timely.com/image/2/content/84866/NVTAwD0XVutB2s8U1BoZg6364pFPOqofw2LIEvhI.jpg)|2026-04-28
+4|SNOS-199|[就職した水着メーカーは女性社員が水着姿の世界。勃起してもHカップの教育担当・夢乃さんが抜いてくれるのでボクの金玉は毎日カラッポ](https://moive.pp.ua/index.php/archives/79541/)|![image](https://cdn.up-timely.com/image/2/content/84881/pNPPUrVcalYWsSWSxjhgm2UuPz90Nv4eC623LCE5.jpg)|2026-04-28
+5|SNOS-182|[元バスガイド村上悠華の48時間セクハラOKファン感謝バスツアー 憧れAV女優の美顔・柔乳・近い距離感にシロウト男子大暴走！ザーメン22発も受け止める大乱交祭り](https://moive.pp.ua/index.php/archives/79540/)|![image](https://cdn.up-timely.com/image/2/content/84884/96OfcEBAnxFXlvOeAAiS4G6MHUWcTgSp0M72gWNg.jpg)|2026-04-28
+6|SNOS-225|[リアル看護師さんを勤務中にイカセまくって退勤後さらに100回おかわりイカセ！](https://moive.pp.ua/index.php/archives/79539/)|![image](https://cdn.up-timely.com/image/2/content/84877/nX6ilyLRFkzKafE8wwiSOoY2U4GUA88VrhwUt4D4.jpg)|2026-04-28
+7|SNOS-180|[客の少ない深夜便は美しい客室乗務員の性的賠償フライト](https://moive.pp.ua/index.php/archives/79538/)|![image](https://cdn.up-timely.com/image/2/content/84871/XTzgZNmPiG5MQPrD9N2u4hk4K3Kr1A6d2uV3vLEF.jpg)|2026-04-28
+8|SNOS-163|[「俺以外の奴とSEXしてみないか…？」 ハプバーNTR 彼氏の言いなり都合のイイ服従カノジョ](https://moive.pp.ua/index.php/archives/79537/)|![image](https://cdn.up-timely.com/image/2/content/84878/2ZjIUP4m3T8QCvINd0CvjgHIknMsDK5NUhQarolA.jpg)|2026-04-28
+9|SNOS-181|[ハツラツな美女さん、サウナ媚薬で整う！いや、ぶっ飛ぶ！](https://moive.pp.ua/index.php/archives/79536/)|![image](https://cdn.up-timely.com/image/2/content/84865/jIzye9tNs0BYG0uoiRANXjQT2c5WJUQLHPzWuWtk.jpg)|2026-04-28
+10|SNOS-200|[年下のくせにデカい親友の妹が僕を見下ろし わざとおパンツ見せつけ！そんなの見せられたら…シコシコ止まらないよぉ！](https://moive.pp.ua/index.php/archives/79535/)|![image](https://cdn.up-timely.com/image/2/content/84885/Xrfuo4Qga9WTY86jPAC1T7JMwZ7co1Q9Pvr7RB2c.jpg)|2026-04-28
 
 
-[MORE](/S1S1S1/2026-3.md)
+[MORE](/S1S1S1/2026-4.md)
 
 ## Madonna
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|JUVR-280|[超高画質８K MadonnaVR初登場!!葵百合香 「こうやったら生き返るかな？」 ふざけて死んだフリした僕をHないたずらで起こそうとする母さんに幾度もイカされ中出しまでしてしまった。](https://www.avmoive.top/index.php/archives/63377/)|![image](https://cdn.up-timely.com/image/10/content/84252/smkUQ3kWqQIsaH51CPeZux13BAV6vxESxraVCZxA.jpg)|2026-03-30
-2|JUVR-286|[超高画質８K MadonnaVR初登場!!矢埜愛茉 妻の友人が働くマッサージ店に行ってみたら 連続射精でチ〇ポがバカになるまでヌイてくれる 超優良な人妻奉仕メンズエステだった!!](https://www.avmoive.top/index.php/archives/63373/)|![image](https://cdn.up-timely.com/image/10/content/84424/hk57WXk1QTNTGV4qJPuocLjSN4BRKdgOtMnCg4jB.jpg)|2026-03-27
-3|JUMS-165|[人妻の滴るエロスを啜り喰らうすっぽん親父のベロキス性交 7時間](https://www.avmoive.top/index.php/archives/63262/)|![image](https://cdn.up-timely.com/image/10/content/84410/DzMn9vXGl54ETxRx3VUlpvvoqOdaVWfqFOPa8HKX.jpg)|2026-03-24
-4|ROEB-017|[桐岡さつき MONROE 初 BEST ビジュ最強テク最上 レジェンドの濃密エロス8時間14本番](https://www.avmoive.top/index.php/archives/63261/)|![image](https://cdn.up-timely.com/image/10/content/84426/UQEZW3WEYlqRKZvyBtftj5KGphLa31O5Cb6UZKTx.jpg)|2026-03-24
-5|ROE-462|[可愛くて、男らしくて、沼り始める私―。 童貞の甥に身も心も溺れる密会情事の日々―。](https://www.avmoive.top/index.php/archives/63260/)|![image](https://cdn.up-timely.com/image/10/content/84422/9etbkuVAU2L1vAfBMp2PV3JWySzg9R8WQ2Om6RRT.jpg)|2026-03-24
-6|ROE-473|[救いの声さえ掻き消される義実家ー。夫の兄達によるイラマチオ輪姦](https://www.avmoive.top/index.php/archives/63259/)|![image](https://cdn.up-timely.com/image/10/content/84411/dzR4psD5rwWup3h58dFgOWejiggp4Vo4a9cUpjLE.jpg)|2026-03-24
-7|ROE-468|[憧れの叔母に媚薬を盛り続けて１０日後、ガンギマリ中出しハメ放題のアヘアヘ肉便器になった…。](https://www.avmoive.top/index.php/archives/63258/)|![image](https://cdn.up-timely.com/image/10/content/84415/kf4ojg9gkYtQRfBLS8aVxrpenA8kqwzs7mYkPDbr.jpg)|2026-03-24
-8|ROE-471|[引きこもり息子のダッチワイフを壊してしまった義母は身代わり性処理肉ワイフ](https://www.avmoive.top/index.php/archives/63257/)|![image](https://cdn.up-timely.com/image/10/content/84416/soOjz6fu9BZbzX96nibePvS0WUg8mPSKJaWluaj4.jpg)|2026-03-24
-9|ROE-466|[「部長はもう俺たちのオナホだよ」傲慢女上司が絶倫部下にひれ伏す社内凌辱輪姦](https://www.avmoive.top/index.php/archives/63256/)|![image](https://cdn.up-timely.com/image/10/content/84418/QByYLcFDM2O0FgudWkPuFtfLprmZpzHwkvDyRUd2.jpg)|2026-03-24
-10|ROE-450|[娘の幸せを見届けながら…。披露宴で娘婿に犯された母](https://www.avmoive.top/index.php/archives/63255/)|![image](https://cdn.up-timely.com/image/10/content/84419/WimxOzhmAj3sPAOAxotd3KKcamAhFwhslBfBHvuW.jpg)|2026-03-24
+1|JUVR-288|[超高画質８K 「ピンサロより私のほうがいいでしょ？」 経理のお局・北条さんに風俗通いがバレた僕 クビになるかと思いきや欲求不満みたいで ストレス発散フェラで毎日のようにヌカれまくってしまった。](https://moive.pp.ua/index.php/archives/79495/)|![image](https://cdn.up-timely.com/image/10/content/84762/CkKufbxZqCkB2gGonoGIH7iMIkpzWt2FsmYvgr54.jpg)|2026-04-29
+2|JUMS-167|[『週3日、妻とSEXをしている。』と自慢してきた友人から週5日、毎回3,4発、合計18発から20発中出ししてそいつの妻を寝取ってやった。　総集編8時間](https://moive.pp.ua/index.php/archives/79523/)|![image](https://cdn.up-timely.com/image/10/content/84896/VkRgMp4AFxPZUBDSa8Mg8OKmdRXxBTq94CN1PPuy.jpg)|2026-04-28
+3|JUMS-168|[新妻ゆうか First Anniversary 14本番8時間BEST](https://moive.pp.ua/index.php/archives/79522/)|![image](https://cdn.up-timely.com/image/10/content/84919/K3Cb6Yu2Sgu3pntc91Tjfsc6ZurrS4cgBcik4lzN.jpg)|2026-04-28
+4|ROE-484|[義理の娘は男友達を呼び出して毎日、私を輪姦させています―。](https://moive.pp.ua/index.php/archives/79521/)|![image](https://cdn.up-timely.com/image/10/content/84914/wEOPEVyrlQs3Oc6JvfSff1ha7pdxW9tdTFZVsmQM.jpg)|2026-04-28
+5|ROE-480|[オマ○コを照らして誘惑するマッチ売りの人妻](https://moive.pp.ua/index.php/archives/79520/)|![image](https://cdn.up-timely.com/image/10/content/84912/nUCipCsb829LAffH08nLKMhbB5YFjV2z8WVksgQE.jpg)|2026-04-28
+6|ROE-476|[卒業式の後…厳しく指導してくれた女教師へ感謝と憎しみを込めたお礼参り輪姦](https://moive.pp.ua/index.php/archives/79519/)|![image](https://cdn.up-timely.com/image/10/content/84910/vig86RkhXAxxzE8f9VnsAE3Cju5YaDUBSpEHtMoU.jpg)|2026-04-28
+7|ROE-482|[PTA中出し不倫 家庭で空気扱いだった私が見つけた新しい居場所](https://moive.pp.ua/index.php/archives/79518/)|![image](https://cdn.up-timely.com/image/10/content/84903/0vMCCk55VTbz4JHoK4X6IyhLLnxysUnytajjKywh.jpg)|2026-04-28
+8|ROE-475|[16年間マグロだと思ってた妻は… 不貞性交で痙攣ぶっ飛びウオ絶頂し失神するまでイキ続けていた件。](https://moive.pp.ua/index.php/archives/79517/)|![image](https://cdn.up-timely.com/image/10/content/84908/kISv1j8HuidVm5oKMqA6OLGwPVaKpJfxmYk4RiSM.jpg)|2026-04-28
+9|ROE-479|[最愛の娘の彼氏と、大痙攣エビ反り性交に溺れた私。](https://moive.pp.ua/index.php/archives/79516/)|![image](https://cdn.up-timely.com/image/10/content/84922/xmikbvgSo3TTUNWsfQLtfpNQTF8hz7ZJJea3Xhbr.jpg)|2026-04-28
+10|ROE-496|[MONROE史上最年長 トップクラスのアラ還 木戸薫 56歳 AV DEBUT 若さじゃ出せないオトナの艶ー。](https://moive.pp.ua/index.php/archives/79515/)|![image](https://cdn.up-timely.com/image/10/content/84904/ZeZ5RB6Oy5aNPRaAg2wcRZz8wvtiy2hFgAg8tWsI.jpg)|2026-04-28
 
 
-[MORE](/Madonna/2026-3.md)
+[MORE](/Madonna/2026-4.md)
 
 ## Heyzo
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|heyzo-3809|[エロボディに責められました～美女コレクションVol.113～- 夏木ゆきえ](https://www.avmoive.top/index.php/archives/63304/)|![image](https://www.heyzo.com/contents/3000/3809/images/player_thumbnail.jpg)|2026-03-24
-2|heyzo-3808|[ノリの良いパパ活女子を撮影しながらドピュっと中だしVol.4- 岡田ゆか](https://www.avmoive.top/index.php/archives/63234/)|![image](https://www.heyzo.com/contents/3000/3808/images/player_thumbnail.jpg)|2026-03-22
-3|heyzo-3807|[ゴメン彼氏！あなたに見られながら他の男とヤリたいの！！- 紺野咲](https://www.avmoive.top/index.php/archives/63305/)|![image](https://www.heyzo.com/contents/3000/3807/images/player_thumbnail.jpg)|2026-03-21
-4|heyzo-3806|[美巨乳な親友のカノジョを寝取ってヤりました！！- さとみ](https://www.avmoive.top/index.php/archives/63306/)|![image](https://www.heyzo.com/contents/3000/3806/images/player_thumbnail.jpg)|2026-03-20
-5|heyzo-3840|[GIRLS&BOUGA　愛されモテGALが人目を気にせずENDLESSで忘我するすごい逝きっぷりに中出しで答える忘我メンバーの極上ピストンテクニック。- 美波](https://www.avmoive.top/index.php/archives/63307/)|![image](https://www.heyzo.com/contents/3000/3840/images/player_thumbnail.jpg)|2026-03-19
-6|heyzo-3805|[美痴女なエロボディ～美女コレクションVol.112～- 望月しおん](https://www.avmoive.top/index.php/archives/63308/)|![image](https://www.heyzo.com/contents/3000/3805/images/player_thumbnail.jpg)|2026-03-17
-7|heyzo-3804|[ノリの良いパパ活女子を撮影しながらドピュっと中だしVol.3- 石川麻衣](https://www.avmoive.top/index.php/archives/63110/)|![image](https://www.heyzo.com/contents/3000/3804/images/player_thumbnail.jpg)|2026-03-15
-8|heyzo-3803|[隣に越してきた巨乳人妻～夫は単身赴任中～- 折原ほのか](https://www.avmoive.top/index.php/archives/63111/)|![image](https://www.heyzo.com/contents/3000/3803/images/player_thumbnail.jpg)|2026-03-14
-9|heyzo-3802|[星島麻帆に喉奥までズッポリ咥えてもらいました！- 星島麻帆](https://www.avmoive.top/index.php/archives/63061/)|![image](https://www.heyzo.com/contents/3000/3802/images/player_thumbnail.jpg)|2026-03-13
-10|heyzo-3839|[大手会社取締り役裏の顔04- 素人](https://www.avmoive.top/index.php/archives/63112/)|![image](https://www.heyzo.com/contents/3000/3839/images/player_thumbnail.jpg)|2026-03-12
+1|heyzo-3835|[絶品おっぱいをセフレに弄ばれる浮気女- 希望みりな](https://moive.pp.ua/index.php/archives/79734/)|![image](https://www.heyzo.com/contents/3000/3835/images/player_thumbnail.jpg)|2026-04-29
+2|heyzo-3834|[セックスしたい！欲求不満な人妻～美女コレクションVol.118～- 坂谷しほ](https://moive.pp.ua/index.php/archives/79735/)|![image](https://www.heyzo.com/contents/3000/3834/images/player_thumbnail.jpg)|2026-04-28
+3|heyzo-3833|[街頭ナンパで癒し系素人娘をゲット！！- 花谷かれん](https://moive.pp.ua/index.php/archives/64586/)|![image](https://www.heyzo.com/contents/3000/3833/images/player_thumbnail.jpg)|2026-04-26
+4|heyzo-3832|[Sな淫乱痴熟女とねっとりエッチVol.4- 小島あゆ](https://moive.pp.ua/index.php/archives/64587/)|![image](https://www.heyzo.com/contents/3000/3832/images/player_thumbnail.jpg)|2026-04-25
+5|heyzo-3831|[塩見エリカの痴態を拝見！～ボーナススペシャルVol.8～- 塩見エリカ](https://moive.pp.ua/index.php/archives/64570/)|![image](https://www.heyzo.com/contents/3000/3831/images/player_thumbnail.jpg)|2026-04-24
+6|heyzo-3857|[真面目な理系女子大生 真面目な女の子ほど本当はエッチ大好き！思いのほかフェラ上手で・・スク水も着させちゃいました- 北村みき](https://moive.pp.ua/index.php/archives/64571/)|![image](https://www.heyzo.com/contents/3000/3857/images/player_thumbnail.jpg)|2026-04-23
+7|heyzo-3829|[おっぱいをいっぱい責めながら濃密性交～美女コレクションVol.117～- メイリン](https://moive.pp.ua/index.php/archives/64572/)|![image](https://www.heyzo.com/contents/3000/3829/images/player_thumbnail.jpg)|2026-04-21
+8|heyzo-3830|[アジハメ！！Vol.26～女教師をハメハメ～- チャン](https://moive.pp.ua/index.php/archives/64517/)|![image](https://www.heyzo.com/contents/3000/3830/images/player_thumbnail.jpg)|2026-04-19
+9|heyzo-3827|[ご主人様のイチモツで痴女になっちゃう変態メイド- 高垣楓](https://moive.pp.ua/index.php/archives/64518/)|![image](https://www.heyzo.com/contents/3000/3827/images/player_thumbnail.jpg)|2026-04-18
+10|heyzo-3826|[希望みりながアナルをペロっと責めまくる！- 希望みりな](https://moive.pp.ua/index.php/archives/64487/)|![image](https://www.heyzo.com/contents/3000/3826/images/player_thumbnail.jpg)|2026-04-17
 
 
-[MORE](/Heyzo/2026-3.md)
+[MORE](/Heyzo/2026-4.md)
 
 ## 1Pondo
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|032926_001|[円熟痴女のおもてなし](https://www.avmoive.top/index.php/archives/63379/)|![image](https://www.1pondo.tv/assets/sample/032926_001/str.jpg)|2026-03-29
-2|032826_001|[朝ゴミ出しする近所の遊び好きノーブラ奥さん 小島あゆ](https://www.avmoive.top/index.php/archives/63380/)|![image](https://www.1pondo.tv/assets/sample/032826_001/str.jpg)|2026-03-28
-3|032626_001|[揉みたくなる！埋めたくなる！おっぱいでおもてなし](https://www.avmoive.top/index.php/archives/63374/)|![image](https://www.1pondo.tv/assets/sample/032626_001/str.jpg)|2026-03-26
-4|032426_001|[PtoMセックス 折原ほのか](https://www.avmoive.top/index.php/archives/63302/)|![image](https://www.1pondo.tv/assets/sample/032426_001/str.jpg)|2026-03-24
-5|032126_001|[アナル家族のドロ沼エロ物語](https://www.avmoive.top/index.php/archives/63229/)|![image](https://www.1pondo.tv/assets/sample/032126_001/str.jpg)|2026-03-21
-6|032026_001|[騎乗位タイムトライアル！アナスタシア](https://www.avmoive.top/index.php/archives/63168/)|![image](https://www.1pondo.tv/assets/sample/032026_001/str.jpg)|2026-03-20
-7|031926_001|[家政婦の南条 ~デカ乳編 ~](https://www.avmoive.top/index.php/archives/63169/)|![image](https://www.1pondo.tv/assets/sample/031926_001/str.jpg)|2026-03-19
-8|031726_001|[働きウーマン ~某AVメーカーに就職した女性ADに密着~](https://www.avmoive.top/index.php/archives/63170/)|![image](https://www.1pondo.tv/assets/sample/031726_001/str.jpg)|2026-03-17
-9|031426_001|[濡れ透け痴女にムラムラ](https://www.avmoive.top/index.php/archives/63107/)|![image](https://www.1pondo.tv/assets/sample/031426_001/str.jpg)|2026-03-14
-10|031226_001|[社内NTR ~ 同僚穴兄弟 ~](https://www.avmoive.top/index.php/archives/63055/)|![image](https://www.1pondo.tv/assets/sample/031226_001/str.jpg)|2026-03-12
+1|043026_001|[カスハラにも対応するホテルコンシェルジュ 山岸あやな](https://moive.pp.ua/index.php/archives/79737/)|![image](https://www.1pondo.tv/assets/sample/043026_001/str.jpg)|2026-04-30
+2|042926_001|[PtoMセックス 田中華恋](https://moive.pp.ua/index.php/archives/79738/)|![image](https://www.1pondo.tv/assets/sample/042926_001/str.jpg)|2026-04-29
+3|042526_001|[夫の連れ子がヤバい鬼畜でした！](https://moive.pp.ua/index.php/archives/79739/)|![image](https://www.1pondo.tv/assets/sample/042526_001/str.jpg)|2026-04-25
+4|042326_001|[宅配業者のチンポを狙う独身痴女](https://moive.pp.ua/index.php/archives/79740/)|![image](https://www.1pondo.tv/assets/sample/042326_001/str.jpg)|2026-04-23
+5|042126_001|[学園天国 ~ ひなの中出しソープ部 ~](https://moive.pp.ua/index.php/archives/79741/)|![image](https://www.1pondo.tv/assets/sample/042126_001/str.jpg)|2026-04-21
+6|041826_001|[高級ソープへようこそ 小島あゆ](https://moive.pp.ua/index.php/archives/79742/)|![image](https://www.1pondo.tv/assets/sample/041826_001/str.jpg)|2026-04-18
+7|041626_001|[プロフェショナルSEXY女優の流儀 浜田希](https://moive.pp.ua/index.php/archives/79743/)|![image](https://www.1pondo.tv/assets/sample/041626_001/str.jpg)|2026-04-16
+8|041426_001|[海の幸もブロンド美女の女体も美味！これが女体盛りだ！](https://moive.pp.ua/index.php/archives/79744/)|![image](https://www.1pondo.tv/assets/sample/041426_001/str.jpg)|2026-04-14
+9|041126_001|[朝ゴミ出しする近所の遊び好きノーブラ奥さん 坂谷しほ](https://moive.pp.ua/index.php/archives/79745/)|![image](https://www.1pondo.tv/assets/sample/041126_001/str.jpg)|2026-04-11
+10|040926_001|[朝ゴミ出しする近所の遊び好きノーブラ奥さん 南原みさき](https://moive.pp.ua/index.php/archives/79746/)|![image](https://www.1pondo.tv/assets/sample/040926_001/str.jpg)|2026-04-09
 
 
-[MORE](/1Pondo/2026-3.md)
+[MORE](/1Pondo/2026-4.md)
 
 ## Moodyz
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|MDVR-407|[ヤンデレ神乳メイドの超過保護あまあま強制ご奉仕中出しSEXで精子を搾り尽くされるボク。](https://www.avmoive.top/index.php/archives/63228/)|![image](https://cdn.up-timely.com/image/30/content/84328/Ae1SxOqJCc1kQyHhdoH8o5EpVRXdgm0O5e3TUr3D.jpg)|2026-03-23
-2|MDVR-408|[妹の不適切な絶対領域 ミニスカートとニーハイが織りなす永遠の17cm 太ももとパンチラのマリアージュ](https://www.avmoive.top/index.php/archives/63285/)|![image](https://cdn.up-timely.com/image/30/content/84332/g4ZVk8KNMSKMFDOtlAxkl8i9FirOsjh9q9OT85yZ.jpg)|2026-03-20
-3|MIZD-523|[身長156cm以下の出産適齢ワレメに変態DNAザーメンを刻む 発育途中のミニマム制服J系だけを狙って孕むまで鬼畜中出し30連レ×プ](https://www.avmoive.top/index.php/archives/63152/)|![image](https://cdn.up-timely.com/image/30/content/84338/PaEAn5MpeIueg5AQ5wgCFa0O6ORSxEQEfiLuXZtJ.jpg)|2026-03-17
-4|MIZD-522|[美少女2人がボクの弱点、乳首とチ○ポを同時に交互にずっとニヤニヤシコシコ弄りながら何度も何度もあ～～～～～！射精されたいッ！ベスト](https://www.avmoive.top/index.php/archives/63151/)|![image](https://cdn.up-timely.com/image/30/content/84344/CXJqGRfNSZl03CmcR1f0eO3e2L2wBvFR8iAoUsc5.jpg)|2026-03-17
-5|MIZD-486|[引退永遠の佐山愛BEST](https://www.avmoive.top/index.php/archives/63150/)|![image](https://cdn.up-timely.com/image/30/content/84356/7bMTHMuDtqPLKjsVLaM0HyoQYkFxcdUjxEqgtW3d.jpg)|2026-03-17
-6|MIAB-639|[別れ際のカウントダウンNTR 1週間後に親友に彼女を取られる僕は甘々浮気セックス観察放置する間に禁欲して精子を溜めまくって振られる直前に鬼ピス種付け20発してやった。](https://www.avmoive.top/index.php/archives/63149/)|![image](https://cdn.up-timely.com/image/30/content/84347/2lt5wVLVPmxXs9ApHTUCFzpQdJNpDayX1l3kAriO.jpg)|2026-03-17
-7|MIAB-600|[時間停止できるゴミ部屋オヤジに狙われたJ系のワタシ…。　停止中もねっちょり絶倫ピストン突かれ10発濃厚中出し ストップ解除で訪れる蓄積分の快感にのけ反り痙攣ガクガク潮吹きアクメオーガズム](https://www.avmoive.top/index.php/archives/63148/)|![image](https://cdn.up-timely.com/image/30/content/84348/sxykoaTOMlJjpopTbvJ1OCCgNeZtCszOdkboeHvH.jpg)|2026-03-17
-8|MIAB-636|[子宮のすべてを知り尽くした義父(産婦人科医)に触診される度、イクイク膣に強制開発されたいつでも使える中出しオナホ妻](https://www.avmoive.top/index.php/archives/63147/)|![image](https://cdn.up-timely.com/image/30/content/84336/XJO9ZLIxXfVBg7DL032ACoPJAqT9tolhZVcyqbup.jpg)|2026-03-17
-9|MIAB-635|[学園イチ優等生が先生を独り占めしたくて…校則違反Tフロントで猛アタック！ハイレグ制服おま〇こギュイン食い込み誘惑で濡れ染みビッチョリ！クリ擦れ騎乗位中出しSEX](https://www.avmoive.top/index.php/archives/63146/)|![image](https://cdn.up-timely.com/image/30/content/84351/4xgX3RRq4RbwFWcStuU1RPnb5HOCjhUPTbKC9yzh.jpg)|2026-03-17
-10|MIAB-634|[スケベ淫乱おま○こ限界突破　北野未奈リミッターカット　初・ポルチオ徹底開発](https://www.avmoive.top/index.php/archives/63145/)|![image](https://cdn.up-timely.com/image/30/content/84350/IOXOUcQx1vvau5IwhEVyv9WY0jvIkdoRg5k7r3N9.jpg)|2026-03-17
+1|MDVR-419|[青春の記憶を上書きしてくれる学校イチのアイドルは、僕だけの彼女。 ももちゃんと2人、放課後はじめてのラブホお泊りデートで濃厚で幸せな思い出性交VR](https://moive.pp.ua/index.php/archives/64582/)|![image](https://cdn.up-timely.com/image/30/content/84709/8MfeeJlnebQZ4I9MwQ6yl2lODM50v15Il36QgNqo.jpg)|2026-04-25
+2|MIZD-529|[観れば絶対イカせられる！ アナタもヌイて学べる MOODYZ美少女と一緒に！How to SEX！BEST 「シコって学ぼう永久保存版！」](https://moive.pp.ua/index.php/archives/64550/)|![image](https://cdn.up-timely.com/image/30/content/84846/2efiQ6Z1iHkjJSKoXUJXOReZeu2pWfTbdqvyssOs.jpg)|2026-04-21
+3|MIZD-528|[八木奈々5thBEST12時間10作品30本番](https://moive.pp.ua/index.php/archives/64549/)|![image](https://cdn.up-timely.com/image/30/content/84859/j1d1LkubuTf7yXSnsOCtM22eWRD9DthG9CLlIT9T.jpg)|2026-04-21
+4|MIAB-645|[校則が厳しすぎるスポコン教師にアナル見せつけデカ尻挑発する黒ギャルヤリマンJ系×2  Wむちぃケツ肉猥褻ピストンでウチらの言うこと聞くまで射精させてやるかんなー](https://moive.pp.ua/index.php/archives/64548/)|![image](https://cdn.up-timely.com/image/30/content/84860/zvPxLELSFRutYiFKSJA7V7p9GyIFzdF9RTYyJoiz.jpg)|2026-04-21
+5|MNGS-049|[【主観】×【即ヌキ】×【10コーナー】僕をロックオンした彼女の親友がバレたら即人生終了の至近距離でスリル楽しむ痴女テク全開サイレント逆NTR](https://moive.pp.ua/index.php/archives/64547/)|![image](https://cdn.up-timely.com/image/30/content/84851/YJwgjwY8M96PzAapdtU6ypzpeoHlOxeM0ztyQ2r6.jpg)|2026-04-21
+6|MNGS-052|[セックスしたすぎて成仏できないギャル幽霊と不意うち痴女られ無責任中出し同棲生活](https://moive.pp.ua/index.php/archives/64546/)|![image](https://cdn.up-timely.com/image/30/content/84840/beusRgmLLFjaF0XM1kQ4uaRAqclkJicFR7IYG0iD.jpg)|2026-04-21
+7|MIMK-278|[懺悔穴 シリーズ売り上げ25万部肉奴隷聖女実写化](https://moive.pp.ua/index.php/archives/64545/)|![image](https://cdn.up-timely.com/image/30/content/84838/oLhqdAoiFW9gsV66DOs77PEyX2g10sMjkmewohS3.jpg)|2026-04-21
+8|MIMK-274|[宗教勧誘に来た母娘の胸がエロかったので、部屋に連れ込んだら、肉オナホにできた話。](https://moive.pp.ua/index.php/archives/64544/)|![image](https://cdn.up-timely.com/image/30/content/84835/6WCLmAgMj0goFUpUoYYmz2eGkfcG77dvXYUUHJ7G.jpg)|2026-04-21
+9|MIDA-607|[婚約者が帰って来るまで屋内露出の羞恥散歩とデカチンお漏らし堕ちし過去イチでイキ狂った日](https://moive.pp.ua/index.php/archives/64543/)|![image](https://cdn.up-timely.com/image/30/content/84848/1W5LuAFYYoe2wMmoNypytySQUUKkXfcoq54qbgPz.jpg)|2026-04-21
+10|MIDA-641|[汗びちょむんむんデカパイとドM開脚プリ尻挑発で勃起若マラ喰い下品にガニ股アクメ中出しねだる欲求不満な変態ジム通い妻](https://moive.pp.ua/index.php/archives/64542/)|![image](https://cdn.up-timely.com/image/30/content/84850/ayq4AJgdhH4fkaTkZP6iJab3yUGlfw4kyvTe1IEz.jpg)|2026-04-21
 
 
-[MORE](/Moodyz/2026-3.md)
+[MORE](/Moodyz/2026-4.md)
 
 ## Caribbeancom
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|033026-001|[絶倫上司とセックス残業](https://www.avmoive.top/index.php/archives/63381/)|![image](https://www.caribbeancom.com/moviepages/033026-001/images/l/001.jpg)|2026-03-30
-2|032926-001|[いい大人の預かり所 ~淫語ささやきお姉さんがオッパイを吸わせて甘やかしてくれるじゃん~](https://www.avmoive.top/index.php/archives/63382/)|![image](https://www.caribbeancom.com/moviepages/032926-001/images/l/001.jpg)|2026-03-29
-3|032826-001|[One more time, One more fuck ~撮影直後でも余裕な弘中れおなにもうひとハメお願いしてみた~](https://www.avmoive.top/index.php/archives/63383/)|![image](https://www.caribbeancom.com/moviepages/032826-001/images/l/001.jpg)|2026-03-28
-4|032726-001|[ダイナマイト アナスタシア](https://www.avmoive.top/index.php/archives/63375/)|![image](https://www.caribbeancom.com/moviepages/032726-001/images/l/001.jpg)|2026-03-27
-5|032626-001|[マンズリ検証 ~マンズリのオカズは?イク寸前に本物のチンポを挿入したら?~](https://www.avmoive.top/index.php/archives/63376/)|![image](https://www.caribbeancom.com/moviepages/032626-001/images/l/001.jpg)|2026-03-26
-6|032526-001|[マンコ図鑑 野々宮すず](https://www.avmoive.top/index.php/archives/63303/)|![image](https://www.caribbeancom.com/moviepages/032526-001/images/l/001.jpg)|2026-03-25
-7|032326-001|[和装の上山奈々をヤル！](https://www.avmoive.top/index.php/archives/63230/)|![image](https://www.caribbeancom.com/moviepages/032326-001/images/l/001.jpg)|2026-03-23
-8|032226-001|[いきなり面接３Pで性に目覚めた女子短大生](https://www.avmoive.top/index.php/archives/63231/)|![image](https://www.caribbeancom.com/moviepages/032226-001/images/l/001.jpg)|2026-03-22
-9|032126-001|[アラサー喪女の暴走オーガズム](https://www.avmoive.top/index.php/archives/63232/)|![image](https://www.caribbeancom.com/moviepages/032126-001/images/l/001.jpg)|2026-03-21
-10|032026-001|[Debut Vol.107 ~枕営業もしちゃう地雷系童顔美少女~](https://www.avmoive.top/index.php/archives/63171/)|![image](https://www.caribbeancom.com/moviepages/032026-001/images/l/001.jpg)|2026-03-20
+1|043026-001|[あなた、こんな私を許して ~力づくのキスに感じてしまった人妻~](https://moive.pp.ua/index.php/archives/79555/)|![image](https://www.caribbeancom.com/moviepages/043026-001/images/l/001.jpg)|2026-04-30
+2|042926-001|[洗練された大人のいやし亭 ~極上スレンダー巨乳の光溢れる昼間の和風俗~](https://moive.pp.ua/index.php/archives/79556/)|![image](https://www.caribbeancom.com/moviepages/042926-001/images/l/001.jpg)|2026-04-29
+3|042726-001|[和装の星野みきをヤル！](https://moive.pp.ua/index.php/archives/64583/)|![image](https://www.caribbeancom.com/moviepages/042726-001/images/l/001.jpg)|2026-04-27
+4|042626-001|[新入社員のお仕事 Vol.32](https://moive.pp.ua/index.php/archives/64584/)|![image](https://www.caribbeancom.com/moviepages/042626-001/images/l/001.jpg)|2026-04-26
+5|042526-001|[怒涛の連続挿入180分 ~ナイスボディの美女にエンドレス中出し~ 前編](https://moive.pp.ua/index.php/archives/64585/)|![image](https://www.caribbeancom.com/moviepages/042526-001/images/l/001.jpg)|2026-04-25
+6|042426-001|[AV女優の潜入無双 ~清掃業者の男性たちを抜いてきてください~](https://moive.pp.ua/index.php/archives/64567/)|![image](https://www.caribbeancom.com/moviepages/042426-001/images/l/001.jpg)|2026-04-24
+7|042326-001|[AV女優をあなたの自宅に宅配！11](https://moive.pp.ua/index.php/archives/64568/)|![image](https://www.caribbeancom.com/moviepages/042326-001/images/l/001.jpg)|2026-04-23
+8|042126-001|[夫の借金をカラダで返済する人妻の悲劇](https://moive.pp.ua/index.php/archives/64569/)|![image](https://www.caribbeancom.com/moviepages/042126-001/images/l/001.jpg)|2026-04-21
+9|042026-001|[イメクラエステ](https://moive.pp.ua/index.php/archives/64515/)|![image](https://www.caribbeancom.com/moviepages/042026-001/images/l/001.jpg)|2026-04-20
+10|041826-001|[One more time, One more fuck ~撮影直後でも日下部ひなにもうひとハメお願いしてみた~](https://moive.pp.ua/index.php/archives/64516/)|![image](https://www.caribbeancom.com/moviepages/041826-001/images/l/001.jpg)|2026-04-18
 
 
-[MORE](/Caribbeancom/2026-3.md)
+[MORE](/Caribbeancom/2026-4.md)
 
 ## Ideapocket
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|IPVR-372|[VR IMPRESSION 花咲澪 解禁　おっとり’ときどき’ふしだらイメージぶっ壊す淫乱な腰振りGカップお天気お姉さんの夜の顔](https://www.avmoive.top/index.php/archives/63153/)|![image](https://cdn.up-timely.com/image/4/content/84229/jGssNG5FnoVCRPl1nP8Wa3dQSMRAfuHNXzUUoWKy.jpg)|2026-03-17
-2|IPVR-364|[大学推薦と引き換えに学園中の男子生徒が憧れる愛されキャラの教え子を中出しペットにしてやった](https://www.avmoive.top/index.php/archives/63023/)|![image](https://cdn.up-timely.com/image/4/content/83975/z37iIq3yIuRZwSFDAfw1Ano4dBFpteyXQpX27nld.jpg)|2026-03-12
-3|IPOK-011|[死ぬほど大嫌いな上司と出張先の温泉旅館でまさかの相部屋に… 醜い絶倫おやじに何度も何度もイカされてしまったワタシ達 11時間 ベスト3](https://www.avmoive.top/index.php/archives/63040/)|![image](https://cdn.up-timely.com/image/4/content/84132/d7OdXQOauNmbSZBWhaaAkTxQnnsTiXQDA4y3r9js.jpg)|2026-03-10
-4|IPOK-012|[愛嬌抜群・たぬき顔・柔ふわHcupの国士無双 役野満里奈 IDEAPOCKET 卒業記念 18タイトルほぼコンプリートベスト15時間](https://www.avmoive.top/index.php/archives/63039/)|![image](https://cdn.up-timely.com/image/4/content/84116/pmgRk1EflghMRFRFQMHMNv2E9iC3qPGSseGivY4w.jpg)|2026-03-10
-5|IPZZ-797|[おどおどブルブル… 押し弱アイドルはプロデューサーのいいなりなので無理矢理温泉旅行に連れてかれオナホ扱いされています](https://www.avmoive.top/index.php/archives/63038/)|![image](https://cdn.up-timely.com/image/4/content/84117/I8wF6Oh6C4kdHkUIgjeCxiMOgNQbvRgMjexa3VnX.jpg)|2026-03-10
-6|IPZZ-817|[汗と涙の青春レ●プ 大親友が最後の大会で私をメンバー入りさせる為、キモい中年顧問に性を売っていると知り一緒に犯されることを決めた陸上部員](https://www.avmoive.top/index.php/archives/63037/)|![image](https://cdn.up-timely.com/image/4/content/84125/pryZNZ0ObntZdbVxJPLjsTe7lSpEuP2Tydi3YJAf.jpg)|2026-03-10
-7|IPZZ-814|[超かわちぃ小悪魔妹が顔面特化距離で汗だく密着痴女してくる](https://www.avmoive.top/index.php/archives/63036/)|![image](https://cdn.up-timely.com/image/4/content/84133/g1j7GVc1By1NYW09oZgiIx78BT6yaS75ZEwEWyV5.jpg)|2026-03-10
-8|IPZZ-811|[清楚系アイドルの彼女が打ち上げで泥酔して関係者チ●ポ喰いまくりのド淫乱ビッチ化！？ SNS炎上待ったなしのNTR映像](https://www.avmoive.top/index.php/archives/63035/)|![image](https://cdn.up-timely.com/image/4/content/84123/UaTYJytiVI80objr4k2o5Ed9rzId1yyTFIXIAsDI.jpg)|2026-03-10
-9|IPZZ-781|[100本以上AV撮影をして絶頂マンネリ化している桜空ももをODギリギリまで強力媚薬漬けにしてぶっ壊れ鬼イカセ](https://www.avmoive.top/index.php/archives/63034/)|![image](https://cdn.up-timely.com/image/4/content/84134/RY29dqNcoVKWN6F5W8EqwMIR6wSMGYLTl2EUqwiF.jpg)|2026-03-10
-10|IPZZ-812|[昨晩、酔った勢いでヤッた事実を朝知った俺は 押しに弱い可愛い後輩が敏感でイキまくるSEXを意地でもおかわりしたい](https://www.avmoive.top/index.php/archives/63033/)|![image](https://cdn.up-timely.com/image/4/content/84129/EzgxeIFmZ08AkQFIEXhjwfDdweqrNPhvyYgLQsS7.jpg)|2026-03-10
+1|IPZZ-838|[絶世の美女と中年おやじのナマ舌とナマ唾が卑猥に絡み合う濃密ベロキスと国宝美顔に絶え間なく顔射される濃厚ザーメン](https://moive.pp.ua/index.php/archives/64478/)|![image](https://cdn.up-timely.com/image/4/content/84641/4PgCqquyEGfF0V3rzJZcTvCpK6jPr9mZQhXdDlh0.jpg)|2026-04-14
+2|IPZZ-799|[ゲリラ豪雨、蒸し暑い満員電車、濡れ透けた乳房と突起… 痴漢魔に目をつけられた気弱な制服美少女は未開発な乳頭をこねくり回され続け乳首イキするほどの早漏体質に開発された。](https://moive.pp.ua/index.php/archives/64477/)|![image](https://cdn.up-timely.com/image/4/content/84632/Oc1MVWjkdmLBcQYw1vGQxwP0HM9aojz3ONlDWe0G.jpg)|2026-04-14
+3|IPZZ-836|[人生で初めてのナマ中出し解禁](https://moive.pp.ua/index.php/archives/64476/)|![image](https://cdn.up-timely.com/image/4/content/84639/2XFchCyE7WptMOW4hZRmL8V7MFe28fieZ48LTPZu.jpg)|2026-04-14
+4|IPZZ-829|[コンカフェ通いの俺に嫉妬したキレカワ彼女がメイドさんに！？ ふざけて始めたご奉仕プレイが徐々に過激になり淫乱ドMに目覚めてしまった](https://moive.pp.ua/index.php/archives/64475/)|![image](https://cdn.up-timely.com/image/4/content/84634/aBNonafUYF8gTnpYtr8imVyyTIFc3i69oVt5pJ6K.jpg)|2026-04-14
+5|IPZZ-816|[うるうる…びくびく…ムラムラ…押し弱アイドルなことをいいことに媚薬過剰投与しキメセク依存症になるまで調教してやった](https://moive.pp.ua/index.php/archives/64474/)|![image](https://cdn.up-timely.com/image/4/content/84637/ClkO5SIfnUfXfGGLafa3yDLbs6YWVAnd6oHMbsAg.jpg)|2026-04-14
+6|IPZZ-858|[上京したてで都会の満員電車を知らないお嬢様女子大生は脱いだら凄いことがバレて痴漢の餌食になってしまう…](https://moive.pp.ua/index.php/archives/64473/)|![image](https://cdn.up-timely.com/image/4/content/84631/nT1b21Vtf6LHegigWlEM7BwbH9Amw4KELlr9cIxi.jpg)|2026-04-14
+7|IPZZ-824|[大会前合宿でマネージャーの私は先生と相部屋に…。引退までの2ヶ月間、顧問との浮気SEXにハマってしまったことはエースの彼氏には絶対に知られたくない](https://moive.pp.ua/index.php/archives/64472/)|![image](https://cdn.up-timely.com/image/4/content/84625/o2M0LujLYLHntkAjyrl55XbaDgjbLP3vqMrJudBN.jpg)|2026-04-14
+8|IPZZ-791|[オナニーばかりしている親友の性欲モンスター息子を助けるつもりが絶倫追撃ピストンで返り討ちにあった元ヤリマンギャル](https://moive.pp.ua/index.php/archives/64471/)|![image](https://cdn.up-timely.com/image/4/content/84638/dWcegkLt2XEYwQTjL1Kf9B6O1b7QyOs4X1M1PV7l.jpg)|2026-04-14
+9|IPZZ-839|[ちっちゃくて可愛くてアナタのことが大大大好きな小動物系彼女の美顔特化＆大量顔射オナサポ](https://moive.pp.ua/index.php/archives/64470/)|![image](https://cdn.up-timely.com/image/4/content/84623/8iW4dXMgX8n0MhJBMYUZ5h2VhYML6gmRQNPsRiR1.jpg)|2026-04-14
+10|IPZZ-846|[セレブに憧れた女社長が海外顔負けの爆乳露出ファッションで出勤してきて目のやり場に困っています](https://moive.pp.ua/index.php/archives/64469/)|![image](https://cdn.up-timely.com/image/4/content/84630/VlzZRBeDSGSeWZtEx8bqwpDQaljDCaPudiBdFRxt.jpg)|2026-04-14
 
 
-[MORE](/Ideapocket/2026-3.md)
+[MORE](/Ideapocket/2026-4.md)
 
 ## Fitch
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|FPRE-224|[あなたが出社して帰るまで私は義父さんの接吻奴隷にされています…。](https://www.avmoive.top/index.php/archives/63235/)|![image](https://cdn.up-timely.com/image/12/content/84270/0ST0MfY9uC1ByjwEfQJ82pVjKt0mNvr5MtBk12EO.jpg)|2026-03-17
-2|JFB-503|[松本菜奈実 Fitch出演全11タイトル収録 12時間BEST](https://www.avmoive.top/index.php/archives/63179/)|![image](https://cdn.up-timely.com/image/12/content/84275/zHEmc7P0DLqmOKwYQKGqiuwlWSUQUhRNmOjewTJB.jpg)|2026-03-17
-3|JFB-502|[むっちり巨乳の最強ショートカット天月あず Fitch出演13タイトル全SEX入り16時間BEST](https://www.avmoive.top/index.php/archives/63178/)|![image](https://cdn.up-timely.com/image/12/content/84276/xZ9cOpO9SGwIs9P1a4IVPZZfsIcvxsR0qiZT5htH.jpg)|2026-03-17
-4|NIMA-077|[実写版！妹の友達がドスケベ体臭フェチ過ぎて、陰キャの俺と危険日中出しハメまくり](https://www.avmoive.top/index.php/archives/63177/)|![image](https://cdn.up-timely.com/image/12/content/84278/ATuEi45ijJhLjwBQYX1TufeoumxRH2PLMzaU90fo.jpg)|2026-03-17
-5|JUFE-615|[オヤジのハメ撮りドキュメント ねっとり濃厚に貪り尽くす体液ドロドロ汗だく性交](https://www.avmoive.top/index.php/archives/63176/)|![image](https://cdn.up-timely.com/image/12/content/84277/Db2uoVZwXNY9EQtTrx7VoN9AFdcZIkk5HwWGCM6V.jpg)|2026-03-17
-6|FPRE-225|[盲目の按摩に施術され…イグイグ体質にされた巨乳若妻](https://www.avmoive.top/index.php/archives/63175/)|![image](https://cdn.up-timely.com/image/12/content/84274/x8jHt8MUfJ8hKixRPUj4FzqfBIlMKFJpQCYvIpLi.jpg)|2026-03-17
-7|JUFE-614|[緊縛解禁！白い柔肌を縛り上げる令嬢緊縛](https://www.avmoive.top/index.php/archives/63174/)|![image](https://cdn.up-timely.com/image/12/content/84269/1s30muAmlOpbJVITUwdq5yli67QoGAKMIiX87FYc.jpg)|2026-03-17
-8|FPRE-211|[大型新人第三弾！ 究極の肉感ボディを震わせながら中出し解禁 天然Kcupを味わい尽くす超絶品BODYエグヌキ接写アングル](https://www.avmoive.top/index.php/archives/63173/)|![image](https://cdn.up-timely.com/image/12/content/84271/ghQcyfp0EnZaUAIOgo08qbEwGpl7VQqilBRXq8fu.jpg)|2026-03-17
-9|FCVR-066|[出張ホテルで娘世代女子社員とまさかの相部屋！ 汗ばむ巨乳で抱きつかれ耳元誘惑…我慢できずに密着生性交](https://www.avmoive.top/index.php/archives/63062/)|![image](https://cdn.up-timely.com/image/12/content/84167/n6wTUnJc48nK66n3TeAcCC6KHGmEoZP5gLtw2wxW.jpg)|2026-03-12
-10|FCVR-068|[メンエス講習で焦らされまくり性欲爆発   目の前のギンギンおち〇ぽ我慢できずにおマ〇コでパクり](https://www.avmoive.top/index.php/archives/63063/)|![image](https://cdn.up-timely.com/image/12/content/83983/wl6IK4NmgX8Vtve1LUDOKWfNy2iI76OFd8nRCGeJ.jpg)|2026-03-10
+1|JFB-505|[にっこり笑顔でイキまくる奏音かのん Fitch出演全タイトル全SEX 240分BEST](https://moive.pp.ua/index.php/archives/64577/)|![image](https://cdn.up-timely.com/image/12/content/84784/znKf5QzWEj3tssY0ntwBdd9YVGokkKFkZZZv2blj.jpg)|2026-04-21
+2|JUFE-617|[オヤジのハメ撮りドキュメント ねっとり濃厚に貪り尽くす体液ドロドロ汗だく性交](https://moive.pp.ua/index.php/archives/64576/)|![image](https://cdn.up-timely.com/image/12/content/84785/FHC1Sg9O6Xe3exqPuEoksDTSB0LLoLtmy5A84G5v.jpg)|2026-04-21
+3|MANX-028|[死ぬほどシコれる卑猥なドスケベ肉感ポーズ　貴方に向かって淫語を連発する巨乳美女編](https://moive.pp.ua/index.php/archives/64575/)|![image](https://cdn.up-timely.com/image/12/content/84783/HSWFnPKzxIcXGuyxdkmV5lIq6vD2gIZi6qQ0RUfK.jpg)|2026-04-21
+4|NIMA-078|[実写版！！童貞大好き女学生ちゃん、絶倫童貞に敗北する―One More！―](https://moive.pp.ua/index.php/archives/64574/)|![image](https://cdn.up-timely.com/image/12/content/84781/3xcJwU9mrqvNpTQCJXXSITKObBZc57qqgHNEFePt.jpg)|2026-04-21
+5|FPRE-218|[修学旅行の下見に行ったド田舎で記録的豪雨に遭遇し… いつも厳しいけど実は欲求不満な人妻女教師のびしょびしょに濡れた爆乳が揺れて僕の精子を出し尽くすまで挟み抜かれる連続射精相部屋セックス](https://moive.pp.ua/index.php/archives/64573/)|![image](https://cdn.up-timely.com/image/12/content/84782/vYGuHQvfQ8givnwcoo7d95rSSdx0xCvCytL3HpuW.jpg)|2026-04-21
+6|FCVR-069|[【Fitch高画質8K肉感VR】寝起きすっぴんでも美人すぎて反則… 朝から無意識に僕を狂わせる年上セフレとリアルな朝SEX](https://moive.pp.ua/index.php/archives/64521/)|![image](https://cdn.up-timely.com/image/12/content/84508/ywrf4gewFQzMDEq1rxbWJxwgqKwtqJ1cqdNqLvzQ.jpg)|2026-04-18
+7|FCVR-064|[【Fitch高画質8K肉感VR】江戸時代にも実在したキメセク体験VR 普通のSEXでは物足りない遊郭 NO.1 の最高級美女と花魁香でぶっ飛びガンギマリSEX](https://moive.pp.ua/index.php/archives/64410/)|![image](https://cdn.up-timely.com/image/12/content/84509/UDgrSwGHloy8WhFIgMEcMhGtgKRlTNUcroIyXicq.jpg)|2026-04-13
+8|FCVR-067|[【Fitch高画質8K肉感VR】舞台で初めて演じる愛人役の練習に付き合わされて… 蒸し暑い部屋で密着し演技と本気が入り混じる汗だく発情SEX！](https://moive.pp.ua/index.php/archives/64411/)|![image](https://cdn.up-timely.com/image/12/content/84502/ZOdi2bDFCLE71Euf3taEl2kJ2VZarAetpUvnodz6.jpg)|2026-04-11
+9|JFB-504|[蘇る!!本真ゆり Fitch出演13タイトル 26SEX 12時間BEST](https://moive.pp.ua/index.php/archives/64401/)|![image](https://cdn.up-timely.com/image/12/content/84504/ts75nwkLgV32clI2lliBWjx2xtx6WGUXibh83Tgo.jpg)|2026-04-07
+10|JUFE-608|[絶倫すぎる巨乳デカ尻ギャル姉妹が 最高に下品なエグいアングルで べちょ濡れ局部を擦りつけて責めまくる 逆ナン爆ヌキ射精強要](https://moive.pp.ua/index.php/archives/64400/)|![image](https://cdn.up-timely.com/image/12/content/84507/yaXIRtRmbTxvvwjQ6KJxxgUrSF4BYCRdIgs3f1N9.jpg)|2026-04-07
 
 
-[MORE](/Fitch/2026-3.md)
+[MORE](/Fitch/2026-4.md)
 
 ## HHH-AV
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|RROY-015|[あなたはボクの永久あこがれお姉さん。森沢かな ROYAL BEST](https://www.avmoive.top/index.php/archives/63301/)|![image](https://cdn.up-timely.com/image/29/content/84480/MeDt6Bahlai7kw9wDFtt8laqvGugFqdDED1pHlD8.jpg)|2026-03-24
-2|HHF-104|[帰宅後30秒で『お帰り』からの即挿入！ 総勢16人4時間BEST ボクの家が問題児女子生徒のたまり場になってしまい次々と教え子相手にハメまくり！中出ししまくりで...！](https://www.avmoive.top/index.php/archives/63300/)|![image](https://cdn.up-timely.com/image/29/content/84485/vvNarnVuyxo4LUGJZ53dTgNjCDIm8V7C3XUX5761.jpg)|2026-03-24
-3|HUNTC-442|[不登校女子は承認欲求モンスター！誰からも必要とされてない引きこもり女子○生の生きがいはオナニー配信で承認欲求を満たすこと。家庭訪問に来た先生や同級生が配信を止めるよう説得すると…](https://www.avmoive.top/index.php/archives/63299/)|![image](https://cdn.up-timely.com/image/29/content/84490/1IbWPM2ewqkaPpvac8H28fitfIhgJmYRfbb9mR4D.jpg)|2026-03-24
-4|ROYD-300|[発情したら校内ドコでも強制中出し！！田舎の男子生徒99％学校で思春期チ●ポを喰い散らかすドスケベ淫乱転校生](https://www.avmoive.top/index.php/archives/63298/)|![image](https://cdn.up-timely.com/image/29/content/84483/JJcfY6M8lnyH0caAXufD8J9Zl5KKwJIAlHOK6w4U.jpg)|2026-03-24
-5|ROYD-298|[専属女優モニタリング。マブダチとキスするって、普通に男とセックスするより恥ずかしくないですか？](https://www.avmoive.top/index.php/archives/63297/)|![image](https://cdn.up-timely.com/image/29/content/84479/MXObXDW9EmPd8xeqVxBGpLXBghYXrHzbvuI7fAOE.jpg)|2026-03-24
-6|HUNTC-537|[エッチな妄想が現実だった！脱毛クリニックに行ったらセクシーな女性スタッフが真面目に仕事するフリしてボクのVIOをわざと刺激！Vol.2　ムダ毛以外も…](https://www.avmoive.top/index.php/archives/63296/)|![image](https://cdn.up-timely.com/image/29/content/84491/xP2h0HTVfpkPQaFwru1SljCGznQNuUx2vyvupt6Z.jpg)|2026-03-24
-7|ROYD-304|[偶然見た向かい部屋の変態。僕たち童貞なのにいきなりエゲつねぇ下品痴女が誘惑してきて…パナいズベ公すぎる鬼連続中出しレッスンで新品金玉がお亡くなりになりました。](https://www.avmoive.top/index.php/archives/63295/)|![image](https://cdn.up-timely.com/image/29/content/84484/Gloc4FDKZLtxmjm0BqbygC9FuFJLvqFZfhTOgSpC.jpg)|2026-03-24
-8|ROYD-301|[寄生NTR。最低クズヤリチン兄貴が家にきてから…毎日毎日ボクのGカップ婚約者を密かに強制種付け調教。不貞SEXの快楽に堕ちていきました…](https://www.avmoive.top/index.php/archives/63294/)|![image](https://cdn.up-timely.com/image/29/content/84482/SCjWDrTCzVA9nPoFQvplWe5xizjpsuyPB23tWXrO.jpg)|2026-03-24
-9|HUNTC-394|[安月給のボクが住む安アパートは築60年で和式便所のオンボロ物件だけど住人女性は全員性欲モンスターでアパートがきしむほどのピストン騎乗位で強制中出し！](https://www.avmoive.top/index.php/archives/63293/)|![image](https://cdn.up-timely.com/image/29/content/84494/jYsShq2LWUoBFvd6qJQh0dqLOaVjg9SKO5IAUTud.jpg)|2026-03-24
-10|HUNTC-493|[リゾバ女子はヤリモク女子だらけ！リゾート地で開放的になった女子たちはお股も開放中！モテないボクでも可愛い女子とセックス三昧！仕事中でも休憩中でも寮に帰っても…ヤル事といえば酒を飲むかセックスするか！住み込み食事付きセックス付きで高収入の神バイト！](https://www.avmoive.top/index.php/archives/63292/)|![image](https://cdn.up-timely.com/image/29/content/84493/XqdkL51PRXhDNNnq3SXXsdgDaisZX5oGbB1c1oR5.jpg)|2026-03-24
+1|RROY-017|[つるぴちJ系とヌルハメ制服SeeeX!敏感うぶなピンク膣に背徳ナカダシ4時間BEST](https://moive.pp.ua/index.php/archives/79732/)|![image](https://cdn.up-timely.com/image/29/content/84967/sSiS60jt33wtMTVJXpbMSkr5oD03lSdNGPyDeboO.jpg)|2026-04-28
+2|HBLA-009|[マ〇コガチャ無差別レ×プ 4時間BEST](https://moive.pp.ua/index.php/archives/79731/)|![image](https://cdn.up-timely.com/image/29/content/84979/LZHkvZc1BNXtdltpJ1W24E8CAmXDNz8C8NUIK4kM.jpg)|2026-04-28
+3|ROYD-310|[妄想エロマンガを見てしまった隣のモデル級お姉さん！むっつりスケベな彼女はキンタマ空になるまで何度もセックスを求めてきた](https://moive.pp.ua/index.php/archives/79730/)|![image](https://cdn.up-timely.com/image/29/content/84968/Lj6pMXe00srSRPeCbzvyXaFhbidgmhIuGlbwk8VI.jpg)|2026-04-28
+4|ROYD-307|[【敗因:激ピス子宮ノック】自称不感症のパパ活マ〇コを何度も焦らして開発したらイキ潮吹いて堕ちました](https://moive.pp.ua/index.php/archives/79729/)|![image](https://cdn.up-timely.com/image/29/content/84970/3lczcGEczxEDGpYDvCWIrupfF0Q0eOzVMjAK9Eq9.jpg)|2026-04-28
+5|ROYD-306|[「ちゃんと洗わなきゃダメだよ！」ボクの事をいつまでも子供扱いする年の離れた姉がボクの包茎チ〇ポの皮を剥いて優しく入念に洗おうとする！](https://moive.pp.ua/index.php/archives/79728/)|![image](https://cdn.up-timely.com/image/29/content/84966/BTRfAi83VK124IDTU2wJBUcsb0UEzRqo5T4VGn89.jpg)|2026-04-28
+6|HUNTC-563|[学校のロッカー裏の隙間がボクらのヤリスポ！隠れてこっそりエッチしてたらバレてしまい覗いていた欲求不満女子たちとヤリまくり数珠繋ぎFUCK！3](https://moive.pp.ua/index.php/archives/79727/)|![image](https://cdn.up-timely.com/image/29/content/84974/iYAYNMhcDAUkl5A8JugnUymTZVST6AWphYJMu6kV.jpg)|2026-04-28
+7|HUBLK-065|[潰れた泥酔女を監禁喉奥破壊！胃底こみ上げる濁流固形！吐きまくる拉致ゲロイラマレイプ](https://moive.pp.ua/index.php/archives/79726/)|![image](https://cdn.up-timely.com/image/29/content/84981/uxx6K7j4ftZmoc6uU0O03F3RCZgQB6YxFMdl8i4z.jpg)|2026-04-28
+8|HUNTC-472|[街中に住み着くホームレス女子がお金を稼ぐために通りすがりの男性に格安円光交渉](https://moive.pp.ua/index.php/archives/79725/)|![image](https://cdn.up-timely.com/image/29/content/84976/Vs764gcxQbmPLC9XZbqBYoLFTJI5nNM2sO5JEBQQ.jpg)|2026-04-28
+9|HUNTC-520|[ルームメイトはまさかの女子！4 巨乳ver 超カワイイし巨乳だし超無防備過ぎる！パンチラ、ブラチラ、乳首チラ！そんな女子とひとつ屋根の下なんて当然我慢出来ず…](https://moive.pp.ua/index.php/archives/79724/)|![image](https://cdn.up-timely.com/image/29/content/84971/P6O0yWaxdQ1R3OACVSQcd67MEuzs37TB7JFjR9jO.jpg)|2026-04-28
+10|ROYD-305|[僕の姉は地味で控えめですが、眼鏡を外すと、絶世の美女で我慢できず迫ったら素股からの生挿入で初中出しをさせてくれました。](https://moive.pp.ua/index.php/archives/79723/)|![image](https://cdn.up-timely.com/image/29/content/84965/SSZ4t5GSlJLQEAmQofukXAPgR5vpDJECH5pOsoNE.jpg)|2026-04-28
 
 
-[MORE](/HHH-AV/2026-3.md)
+[MORE](/HHH-AV/2026-4.md)
 
 ## Honnaka
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|HMN-823|[中出しにてーこーないからおま〇こでおこづかいかせぎするおじさんホイホイろりオナホ](https://www.avmoive.top/index.php/archives/63358/)|![image](https://cdn.up-timely.com/image/25/content/84468/RQuhXdpPK1paWU8Q3FdDJWUeTWjh0t9PtWDqdfIQ.jpg)|2026-03-24
-2|HMN-838|[おい、なめくじ 完全にキマっちゃってるトー●キッズを連れ去り媚薬でなめくじみたいに立てない酩酊女子を睡姦 輪姦 中出し姦](https://www.avmoive.top/index.php/archives/63357/)|![image](https://cdn.up-timely.com/image/25/content/84462/xaGhowCj0H8wp6onnfsU96l4RmY5jCPBqneye60M.jpg)|2026-03-24
-3|HMN-825|[あの頃の続き…ナマでしよう　僕と夏歩さんはいじめられていた。いじめていた連中の命令で、僕はチ〇ポを露出させられ夏歩さんはフェラするというイラマごっこが一時期流行ったが、飽きたのかすぐにやらなくなった。でも、僕はあの続きがしたくなっていた―](https://www.avmoive.top/index.php/archives/63356/)|![image](https://cdn.up-timely.com/image/25/content/84463/pfUXS153Vh3LD84kX6y8qyzgR1SCSrDZAHZXNOwx.jpg)|2026-03-24
-4|HMN-839|[10年ぶりに姪っ子とお風呂。大人のカラダに発育したGカップむちふわオッパイの無自覚誘惑に我慢できず…お風呂で濡れ髪のままビチョビチョ中出ししまくった。](https://www.avmoive.top/index.php/archives/63355/)|![image](https://cdn.up-timely.com/image/25/content/84464/t4wT6d7tUydRIru8jiGjNfRN2fo15fLRLJ7oHqKI.jpg)|2026-03-24
-5|HMN-829|[性に目覚めはじめたボーイッシュ少女（息子の幼馴染）のSEXの練習台になって何度も何度も中出しでイカせまくった](https://www.avmoive.top/index.php/archives/63354/)|![image](https://cdn.up-timely.com/image/25/content/84460/0ZDmxKaX1TcLtUUioNehyI5YzioJVdERP5pZAj0s.jpg)|2026-03-24
-6|HMN-826|[本当にあった！キメセクnight 港区男子に媚薬を吸わされ死ぬほどイカされ中出しされた淫乱覚醒トリップ性交](https://www.avmoive.top/index.php/archives/63353/)|![image](https://cdn.up-timely.com/image/25/content/84466/Y7Kaehh2q6LeOI43GU2gwBUnZ3SkjHrEK0Wexka1.jpg)|2026-03-24
-7|HMN-817|[絶倫義父の言いなり即ズボオナホになって追撃中出しで何度も何度もイカされているワタシ…](https://www.avmoive.top/index.php/archives/63352/)|![image](https://cdn.up-timely.com/image/25/content/84467/iMVInNEg8t5UpIRlYEIiOUMyJK8YDXzC2hPYwlPB.jpg)|2026-03-24
-8|HMN-803|[一度関係があった可愛いカフェ店員と3年ぶりに再会したら人妻になっていた。もう一度しないと誘ったら最初は断られたけど押しに弱いのは変わらずで… 1度だけの約束でホテルで朝までめちゃくちゃ中出ししまくった。初めての朝帰り不倫](https://www.avmoive.top/index.php/archives/63351/)|![image](https://cdn.up-timely.com/image/25/content/84461/ysQn7dBWCQ5eCWzj3xaGQiMN2FQOfawqjtQucovR.jpg)|2026-03-24
-9|HMN-818|[移籍！禁欲でムレムレおま〇こにドッキリ！即ズボ大量中出しイクイク覚醒スペシャル！](https://www.avmoive.top/index.php/archives/63350/)|![image](https://cdn.up-timely.com/image/25/content/84469/iIOA5O3P8FgUA2me87WN3Ps8SYq1zei0l2X4aHiK.jpg)|2026-03-24
-10|HNVR-179|[セクハラ王になれるオフィス](https://www.avmoive.top/index.php/archives/63349/)|![image](https://cdn.up-timely.com/image/25/content/84315/RpCQevoz0xB13HV2fok4n4wRyen65tH5UtyziKQa.jpg)|2026-03-24
+1|HNDB-281|[倉本すみれ ザ・セカンド8時間BEST 剛毛マ〇コ→パイパンにもしちゃいました](https://moive.pp.ua/index.php/archives/79679/)|![image](https://cdn.up-timely.com/image/25/content/84952/eSPBxzRMfaVqYeFxdgeUtzuEHZcVs2JHgpIUUyMh.jpg)|2026-04-28
+2|HMN-802|[「おちんちん奪い合ってごめんね」欲求不満な絶倫おばさん２人の吸いつきマ○コとデカ尻グラインドで中出しさせられまくったボク…](https://moive.pp.ua/index.php/archives/79678/)|![image](https://cdn.up-timely.com/image/25/content/84958/PJ6CEbU9B1LfZshsAmpgIiStvX37yZqDZjrxv9zT.jpg)|2026-04-28
+3|HMN-842|[マッスルガールズバーの腹筋バリキレお姉さん達に営業中こっそり逆ナンされて性欲むんむんケツ加圧逆鬼ピストンで何度も射精させられる卑猥なアフター中出し](https://moive.pp.ua/index.php/archives/79677/)|![image](https://cdn.up-timely.com/image/25/content/84959/7sumgijjfuO3M8psEM30wcal8V1b4jD6XXhGGuh6.jpg)|2026-04-28
+4|HMN-832|[ビキニ姿で絶品ボディ密着！クチうつし媚薬でギンギンメロメロ！濃縮体液まみれ感度暴走中出しメンズエステ](https://moive.pp.ua/index.php/archives/79676/)|![image](https://cdn.up-timely.com/image/25/content/84955/3H9qkk32hL18P5UHQ1NZGqdr24Ff0VfDvionQGs5.jpg)|2026-04-28
+5|HMN-859|[清楚なフリして超下品なS級美少女’中出し’解禁!! ドマゾで超スレンダー華奢クビレ制服女子を孕ませ猥褻教育　母親に売られ、知らない中年おじさんに人生初のナマ中出しを捧げてしまった少女の末路。](https://moive.pp.ua/index.php/archives/79675/)|![image](https://cdn.up-timely.com/image/25/content/84961/15a4CDi2POPM0P4xXNFIxP3SQQ0MgDrkZ6FS4Veb.jpg)|2026-04-28
+6|HMN-849|[会社で厳しいスパルタ女上司がまさかのニコニコソープ嬢!!いつも鬼コワなのに全肯定でよちよち甘やかし赤ちゃんプレイで爆ヌキ連射中出し20発](https://moive.pp.ua/index.php/archives/79674/)|![image](https://cdn.up-timely.com/image/25/content/84951/v9fQPNhGJsFqa0O4Nyn0YmTfWhN3dIPt12bu2Vx5.jpg)|2026-04-28
+7|HMN-841|[春陽モカVS童貞くん　24時間中出し24発射できるまで帰れません！！ ひとつ屋根の下で5人のM男童貞とギャルが監禁モニタリング！早く帰りたいから爆ヌキまくりSP](https://moive.pp.ua/index.php/archives/79673/)|![image](https://cdn.up-timely.com/image/25/content/84954/0CU5OLOcSGUl8SPdyWoDgkNyLi5KO0z2MB4cgn4J.jpg)|2026-04-28
+8|HMN-816|[元男子校に転校してボーイッシュ男子になりすましてたのに…プールの授業で乳首ビンビンつるぺた男水着で女バレして、絶倫同級生に敏感乳首こねくられメス堕ち中出し肉便器に堕ちた私…](https://moive.pp.ua/index.php/archives/79672/)|![image](https://cdn.up-timely.com/image/25/content/84956/6ks6khXxv4x2bIETtF410Ji3HDT0kBtWlUUaJOAV.jpg)|2026-04-28
+9|HMN-830|[盗撮バレで絶対絶命の俺（教師）は、学校一優秀で清楚だと思ってた教え子J系にまさかの罵倒淫語で見下しチ●コキ寸止め焦らし！卒業まで下僕扱い中出し連射で追い詰められるッ！](https://moive.pp.ua/index.php/archives/79671/)|![image](https://cdn.up-timely.com/image/25/content/84960/hhVnTZBEvbZ3O41OYo9BsMh6NY3JHj6orrvSSSGI.jpg)|2026-04-28
+10|HMN-831|[【キメセクNTR映像】別々の大学に進んだ彼女が初めてのサークル新歓飲みで連絡が途絶え、翌朝送られてきたのはガンギマリ下品アクメを繰り返す彼女らしき雌の姿だった。](https://moive.pp.ua/index.php/archives/79670/)|![image](https://cdn.up-timely.com/image/25/content/84953/ymt2qM6Fs4gwHIQ8zRsf7uaRlcFUWqMGYU9uHC9H.jpg)|2026-04-28
 
 
-[MORE](/Honnaka/2026-3.md)
+[MORE](/Honnaka/2026-4.md)
 
 ## Oppai
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|PPBD-318|[2020~2025OPPAIベストプロポーション 圧倒的な存在感で令和のAV界を盛り上げた巨乳女優72名470分](https://www.avmoive.top/index.php/archives/63225/)|![image](https://cdn.up-timely.com/image/20/content/84308/tGkwioOkQMnBbIP2wA1Mlan9iOQPr5QfLngOdNGS.jpg)|2026-03-17
-2|PPPE-410|[【Gスポ経由ポルチオ直撃メッタ突き教育ピストン】 親戚から預かった反抗期巨乳メスガキGALをザーメン逆流種付けプレスで理解らせてやった](https://www.avmoive.top/index.php/archives/63224/)|![image](https://cdn.up-timely.com/image/20/content/84304/yWEVdT9bZgaPyLxOc5HMSp0tsNFpqRpOWM2OAXEG.jpg)|2026-03-17
-3|PPPE-404|[天使と悪魔のスロー＆高速ギアチェンご奉仕 パイズリ天才メイドの朝から晩まで乳でも膣でも連続搾精15発](https://www.avmoive.top/index.php/archives/63223/)|![image](https://cdn.up-timely.com/image/20/content/84302/YqRCB4QytqJOe0eR4kvEOuo8fGuNJWIPwG59A7AJ.jpg)|2026-03-17
-4|PPPE-396|[柔らか女神 もちぽよJカップ2次元BODY絶対挟射パイズリ3本番](https://www.avmoive.top/index.php/archives/63222/)|![image](https://cdn.up-timely.com/image/20/content/84307/USmtRZ5PJN0EQcB4D4Qd5sUowTp2LYnPeo3D1edV.jpg)|2026-03-17
-5|PPPE-402|[彼女のお姉さんは巨乳と中出しOKで僕を誘惑](https://www.avmoive.top/index.php/archives/63221/)|![image](https://cdn.up-timely.com/image/20/content/84306/rb3CoRSl1Cg4cmyo5yiU1X0YQ7mkZAblrucc1MrC.jpg)|2026-03-17
-6|PPPE-405|[おっぱい密着でシコペロ千客万来手コキシャンエステ](https://www.avmoive.top/index.php/archives/63220/)|![image](https://cdn.up-timely.com/image/20/content/84303/6pPYrAWIAeMkcXujIIyZlvbrSh0AjdbvGWiMGppW.jpg)|2026-03-17
-7|PPPE-403|[「セックスしてないと、ヒマだね」娯楽ゼロの田舎、叔父さんと中出し交尾に溺れた夏休み](https://www.avmoive.top/index.php/archives/63219/)|![image](https://cdn.up-timely.com/image/20/content/84305/tof787bsY2kGNdl617ow2ZMkihqlFp3MuncGMW1q.jpg)|2026-03-17
+1|PPPE-409|[スペンス乳腺開発クリニック](https://moive.pp.ua/index.php/archives/79699/)|![image](https://cdn.up-timely.com/image/20/content/84817/viL90eb499RJOpXBqoMRS87b32BJPvZe6TiY7ztQ.jpg)|2026-04-21
+2|PPPE-411|[10人のチ〇ポと生ハメぶっかけ中出し連続対戦バトル](https://moive.pp.ua/index.php/archives/79698/)|![image](https://cdn.up-timely.com/image/20/content/84813/o1UDwf9NwAOJP4zXGmyJhQZuErvsAPAsAtt6hlcy.jpg)|2026-04-21
+3|PPPE-408|[彼女のお姉さんは巨乳と中出しOKで僕を誘惑](https://moive.pp.ua/index.php/archives/79697/)|![image](https://cdn.up-timely.com/image/20/content/84814/4JOZndrpKssQ502A88phbJpNhz81qY2HrkkzzqDh.jpg)|2026-04-21
+4|PPPE-406|[酔った勢いの悪ノリ脱衣麻雀が…罰ゲームのエロコス着て豹変した豪運痴女に僕ら全員ひんむかれ、精子払いを強要されたドスケベ徹マン役満追撃で濃厚パイズリ＆強制中出し](https://moive.pp.ua/index.php/archives/79696/)|![image](https://cdn.up-timely.com/image/20/content/84816/zVCMCL2iWxMhLpRmfDA81YB39Sfwko15gL39ihMR.jpg)|2026-04-21
+5|PPPE-390|[いきなりパイズリフェラしてくれる巨乳ケダモノビッチを派遣します。](https://moive.pp.ua/index.php/archives/79695/)|![image](https://cdn.up-timely.com/image/20/content/84815/Sncz87HTqe16pqVzJpe7bFZBrAtzOCKuVc7N3Nw8.jpg)|2026-04-21
+6|PPPE-407|[生徒の巨乳に理性を失った僕は放課後ラブホで何度も何度も杏と中出しセックスしてしまった](https://moive.pp.ua/index.php/archives/79694/)|![image](https://cdn.up-timely.com/image/20/content/84811/88DLlPpSoQRg8ZdlZglObGIORRO1QoYKw2AIBV4w.jpg)|2026-04-21
+7|PPPE-413|[102cm Jカップ巨乳 三木環奈中出し解禁！OPPAI移籍SPECIAL！](https://moive.pp.ua/index.php/archives/79693/)|![image](https://cdn.up-timely.com/image/20/content/84812/9epqfdsnnx2y4p8XC4R2fDaOMDd6OPh9aOszN6hE.jpg)|2026-04-21
 
-[MORE](/Oppai/2026-3.md)
+[MORE](/Oppai/2026-4.md)
 
 ## NAGAE-STYLE
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|nagst-020|[【配信限定】宇流木さらら ベスト健康肉体美！こんな若妻を抱いてみたい！！](https://www.avmoive.top/index.php/archives/62774/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/nagst00020_4.jpg)|2026-03-24
-2|NSFS-467|[AIリマスター版 被害者はいつも女… 婦女暴行](https://www.avmoive.top/index.php/archives/62773/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-467.jpg)|2026-03-24
-3|NSFS-466|[新・償い22 妻は静かに身を差し出す…](https://www.avmoive.top/index.php/archives/62770/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/5f27f29cdbc90cf32ac58b66123cdfae.jpg)|2026-03-24
-4|NSFS-465|[寝取られの館16 ～ダッチワイフにされた妻～](https://www.avmoive.top/index.php/archives/62769/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/5f27f29cdbc90cf32ac58b66123cdfae.jpg)|2026-03-24
-5|NSFS-464|[借金部屋 リアル寝取らせ風俗](https://www.avmoive.top/index.php/archives/62768/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-464.jpg)|2026-03-24
-6|NSFS-463|[上司の前で・・ 私の妻がヌードモデルになりました。 ベストVOL.4](https://www.avmoive.top/index.php/archives/62772/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-463.jpg)|2026-03-10
-7|NSFS-462|[あなたの嫌うあの人と・・ ベストVOL.2 愛する夫のために肉体を捧げる](https://www.avmoive.top/index.php/archives/62771/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-462.jpg)|2026-03-10
-8|NSFS-461|[性犯罪白書 ～ある女性タレントの性接待～](https://www.avmoive.top/index.php/archives/62767/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-461.jpg)|2026-03-10
-9|NSFS-460|[夫には話せない妻の体験談 町内会で晒された肉体](https://www.avmoive.top/index.php/archives/62766/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/02/NSFS-460.jpg)|2026-03-10
+1|nagst-021|[【配信限定】美咲かんな ベスト 清楚美人妻](https://moive.pp.ua/index.php/archives/64152/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/nagst00021_4.jpg)|2026-04-28
+2|NSFS-475|[AIリマスター版 働く女 スーツの中のだらしない肉体](https://moive.pp.ua/index.php/archives/64151/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-475.jpg)|2026-04-28
+3|NSFS-474|[夫は驚愕！ 妻の不倫現場 真面目だった妻の淫乱性生活](https://moive.pp.ua/index.php/archives/64150/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-474-1.jpg)|2026-04-28
+4|NSFS-473|[かわいい嫁の白き肉体 お義父さんにおしおきされて・・11](https://moive.pp.ua/index.php/archives/64147/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-473.jpg)|2026-04-28
+5|NSFS-472|[ある人妻の下心・・ 力づくでやられたい。4](https://moive.pp.ua/index.php/archives/64146/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-472.jpg)|2026-04-28
+6|NSFS-471|[ザ・和姦 犯●れた男に狂う妻 ベストVol.5](https://moive.pp.ua/index.php/archives/64149/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-471.jpg)|2026-04-14
+7|NSFS-470|[ひとつ屋根の下のタブー 強引に濡らされる嫁 15人ベストVOL.3](https://moive.pp.ua/index.php/archives/64148/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-470.jpg)|2026-04-14
+8|NSFS-469|[熟母38 ～息子の巨根に狂う熟れた肉体～](https://moive.pp.ua/index.php/archives/64145/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-469.jpg)|2026-04-14
+9|NSFS-468|[他人に晒してみたい・・ 自慢の露出妻](https://moive.pp.ua/index.php/archives/64144/)|![image](https://www.nagae-style.com/wp/wp-content/uploads/2026/04/NSFS-468.jpg)|2026-04-14
 
-[MORE](/NAGAE-STYLE/2026-3.md)
+[MORE](/NAGAE-STYLE/2026-4.md)
 
 ## Premium-Beauty
 |NO.|品番|Title|Cover|Release|
 |:---|:---|:---|:---|:---|
-1|PBD-513|[顔がイイのに…もっと”尻”がイイ！！！美尻お姉さんの神SEX厳選30本番](https://www.avmoive.top/index.php/archives/63209/)|![image](https://cdn.up-timely.com/image/8/content/84246/JGsRmbBRFfiEqyq54Y5r0frnHsPpOG4BpO4jLkIV.jpg)|2026-03-17
-2|PBD-514|[白峰ミウ PERFECTベスト 24時間25作品66本番](https://www.avmoive.top/index.php/archives/63208/)|![image](https://cdn.up-timely.com/image/8/content/84249/kWpueXsFvDW0hc6Z3XXYPxDcuGqI6HiHRJkHjdRC.jpg)|2026-03-17
-3|PRED-847|[健全メンズエステで働き始めた巨乳彼女がしつこい本番交渉に負けるハズない。](https://www.avmoive.top/index.php/archives/63207/)|![image](https://cdn.up-timely.com/image/8/content/84242/kcHr8NGQByyhst36NUjoo7mj7rijTs5aGDv9hvU2.jpg)|2026-03-17
-4|PRTD-035|[緊縛麻薬捜査官～救出まで2時間、私は絶対に諦めない～](https://www.avmoive.top/index.php/archives/63206/)|![image](https://cdn.up-timely.com/image/8/content/84247/v8fL3aqvP3UjES1EsQU2Hc2sxOpNZ5rJa6K2xaPX.jpg)|2026-03-17
-5|PRED-837|[肉感が卑猥なスケベポーズでオナホ扱いされてイキまくる黒ギャルお姉ちゃん](https://www.avmoive.top/index.php/archives/63205/)|![image](https://cdn.up-timely.com/image/8/content/84243/2w9u3c8ZL7ywPpkngxBtz02E2Ht14ILjx9uwkQpq.jpg)|2026-03-17
-6|PRED-859|[みゆのデカ尻がエロすぎるから…兄と結婚してしまった初恋の同級生とひとつ屋根の下で背徳中出ししまくって寝取って取り返した話です。](https://www.avmoive.top/index.php/archives/63204/)|![image](https://cdn.up-timely.com/image/8/content/84244/BfKOI7hFnLRQJkwejqS1cbKV5DdI55TybubrWDLw.jpg)|2026-03-17
-7|PRED-850|[アナタのために若妻OL(ワタシ)は極悪企業で中出し全裸勤務をしています。](https://www.avmoive.top/index.php/archives/63203/)|![image](https://cdn.up-timely.com/image/8/content/84241/sHaIR4rAxkFceUo92b5vdio4jkx6cwJCtg4yMiIT.jpg)|2026-03-17
-8|PRED-853|[「精子カラっぽになるまでイカせてあげる(ハート)」【甘とろ囁きで脳イキASMR主観】見つめて中出し！快感オナサポ](https://www.avmoive.top/index.php/archives/63202/)|![image](https://cdn.up-timely.com/image/8/content/84250/MVIXz1wmjc4xAgtOvi3LkQnPRAoF7SiyEYe1E3zH.jpg)|2026-03-17
-9|PRED-855|[元地方局アナウンサー×厳選デカチン「男優さんのおちんちんが凄すぎて…」子宮ぐりぐり半泣きアクメ４本番](https://www.avmoive.top/index.php/archives/63201/)|![image](https://cdn.up-timely.com/image/8/content/84248/jqrWONa4Mw4Qjsddx6nZpmha4cr2YbOqzYbjxUQe.jpg)|2026-03-17
-10|PRST-025|[新人　葉月なぎさ　この美女の騎乗位で暴発したい。　男をイカせる素人離れしたエロセンスの現役看護師　プロ男優のイキ顔見たさにAVデビュー](https://www.avmoive.top/index.php/archives/63200/)|![image](https://cdn.up-timely.com/image/8/content/84245/A0KCnrsbqTMmwDJBpR9xskckeqObkAeldB0yDtyK.jpg)|2026-03-17
+1|PBD-516|[大人の色気ムンムン美脚お姉さんの脚コキに何度も何度もイカされちゃったボク…BEST](https://moive.pp.ua/index.php/archives/79614/)|![image](https://cdn.up-timely.com/image/8/content/84756/ybcmP08MVe2FZm5VHSTHMM2aDvXRjArH56Xaqg8P.jpg)|2026-04-21
+2|PBD-515|[最高すぎた不倫生活。 セックスも、日常も、全てでオレをダメにする愛人沼で溶かされて…。BEST](https://moive.pp.ua/index.php/archives/79613/)|![image](https://cdn.up-timely.com/image/8/content/84754/IFCHRYEUUAp06GY9SsY7xr85ERFAbECgjNaGH5Ma.jpg)|2026-04-21
+3|PRED-848|[W美人女将が伝統のエッグい騎乗位と脳バグ淫語ささやき責めでおもてなし1日1組限定のドスケベ旅館。](https://moive.pp.ua/index.php/archives/79612/)|![image](https://cdn.up-timely.com/image/8/content/84752/vA3aR6IKFeoonuWK224pKOGEHzzTtd47ks8CEnSx.jpg)|2026-04-21
+4|PRED-840|[同窓会で元ご主人様と再会。アナル再開発でイカされまくり何度も中出しされまくった婚約者](https://moive.pp.ua/index.php/archives/79611/)|![image](https://cdn.up-timely.com/image/8/content/84757/9NuUOnJJ12UuGYfcV9QIJ2JpD597Pqb74ITNn07g.jpg)|2026-04-21
+5|PRED-836|[大学に入り直した妻の寝取られ話。](https://moive.pp.ua/index.php/archives/79610/)|![image](https://cdn.up-timely.com/image/8/content/84753/ftzAg70QwCfeGPgpwtd2bF3izYTRelM4IQxnXDgj.jpg)|2026-04-21
+6|PRED-861|[勃起薬を飲まされて蓮先生に介抱してもらったら…真っ白おっぱいとクビレボディに勃起が止まらず朝まで何度も中出ししてしまった性欲モンスターなボク。](https://moive.pp.ua/index.php/archives/79609/)|![image](https://cdn.up-timely.com/image/8/content/84760/02DIeWodFFwxeOie0V0wR4UpictROQ6JqxVlP0AR.jpg)|2026-04-21
+7|PRST-026|[オヤジチ◯ポとハメまくり一泊二日中出し温泉旅行](https://moive.pp.ua/index.php/archives/79608/)|![image](https://cdn.up-timely.com/image/8/content/84759/Pgj8BamGabbHOBn53kUKhsTFfzmb90zGXt7yRCWi.jpg)|2026-04-21
+8|PRED-856|[「クチなら浮気じゃないからさ…」押しに負けて彼氏の親友にフェラチオNTRされてしまったワタシ。](https://moive.pp.ua/index.php/archives/79607/)|![image](https://cdn.up-timely.com/image/8/content/84755/a4zoniaEkqtquciocA4PgRkRJkXtwHq1IsGO9mYY.jpg)|2026-04-21
+9|PRED-854|[飲み会でこっそり”多量勃起薬”を盛られイジラれた僕は......暴れるッ！！！！ 高飛車な女上司にメリメリとメガチ〇ポぶっ刺しッ！同僚が逃げ出す程の復讐ピストンで立場逆転アクメ！ 無尽蔵モンスター中出しで雌堕ち完了した頃にやっと僕は鎮まった...](https://moive.pp.ua/index.php/archives/79606/)|![image](https://cdn.up-timely.com/image/8/content/84758/sQpLHKDRfk9njn2J7rSCayE983xJSWFWDpJ3f7qw.jpg)|2026-04-21
+10|PRED-858|[ピンサロ行くほどフェラ好きなの…？キミ（彼氏）が2度と風俗行けないように10回転分のすっごいフェラでヌキまくってヤルからね](https://moive.pp.ua/index.php/archives/79605/)|![image](https://cdn.up-timely.com/image/8/content/84761/9fhhxfqhr6HTMNjbl5mBkHsUoWe86SHIPEoprpiT.jpg)|2026-04-21
 
 
-[MORE](/Premium-Beauty/2026-3.md)
+[MORE](/Premium-Beauty/2026-4.md)
